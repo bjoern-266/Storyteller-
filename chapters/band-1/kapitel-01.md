@@ -8,7 +8,7 @@ Er atmete durch die Nase. Zwei Sekunden ein. Vier Sekunden aus. Das Bild löste 
 
 Vor ihm, zweihundert Meter über schwarzem Wasser, lag die *Sirene*.
 
-Ein Küstenfrachter, alt, rostrot unter den Natriumlampen des Hafens. Sie lag am Fingerpier drei des Freihafens von Gdynia, festgemacht mit vier Leinen, das Heck zum offenen Becken. An Deck brannte Licht. Nicht viel. Eine Reihe Arbeitslampen achtern, eine einzelne Funzel über dem Fallreep. Elias hatte das Schiff seit sechs Stunden beobachtet, erst durch das Glas vom Dach eines Speichers, dann aus einem geparkten Lieferwagen mit toten Kennzeichen. Er kannte die Wachen. Zwei. Einer ging, einer saß. Der Gehende brauchte für eine Runde um das Deck vier Minuten und zwölf Sekunden, und er rauchte an der Steuerbordreling, immer an derselben Stelle, weil man von dort das Hafentor sehen konnte.
+Ein Küstenfrachter, alt, rostrot unter den Natriumlampen des Hafens. Sie lag am Fingerpier drei des Freihafens von Göteborg, festgemacht mit vier Leinen, das Heck zum offenen Becken. An Deck brannte Licht. Nicht viel. Eine Reihe Arbeitslampen achtern, eine einzelne Funzel über dem Fallreep. Elias hatte das Schiff seit sechs Stunden beobachtet, erst durch das Glas vom Dach eines Speichers, dann aus einem geparkten Lieferwagen mit toten Kennzeichen. Er kannte die Wachen. Zwei. Einer ging, einer saß. Der Gehende brauchte für eine Runde um das Deck vier Minuten und zwölf Sekunden, und er rauchte an der Steuerbordreling, immer an derselben Stelle, weil man von dort das Hafentor sehen konnte.
 
 Der Kurier war seit einundzwanzig Uhr an Bord. Er würde die Festplatte nicht aus der Hand geben. Männer wie er schliefen mit solchen Dingen unter dem Kopfkissen, und am Morgen würde ein anderes Schiff kommen, und die Festplatte würde in Sankt Petersburg sein, ehe irgendjemand in Kopenhagen aufgewacht war.
 
@@ -158,4 +158,4 @@ Die Leitung war tot, bevor er antworten konnte. Elias legte das Telefon in die K
 
 Hinter ihm blieb das Wasser zurück. Es hatte ihn wieder gehen lassen. Es ließ ihn immer gehen — nicht aus Gnade, das hatte er früh gelernt, sondern weil es Zeit hatte. Es hatte alle Zeit der Welt. Es konnte warten.
 
-Elias fuhr nach Westen, dem Morgen entgegen, und dachte an einen Mann namens Anders Holm, der vor nichts Angst hatte und jetzt Angst gehabt hatte, und er wusste noch nicht, dass er im Begriff war, alles zu verlieren, was er in diesem Morgen noch besaß.
+Elias fuhr los, der Küste entlang nach Süden, dem Morgen entgegen, und dachte an einen Mann namens Anders Holm, der vor nichts Angst hatte und jetzt Angst gehabt hatte, und er wusste noch nicht, dass er im Begriff war, alles zu verlieren, was er in diesem Morgen noch besaß.
