@@ -133,6 +133,18 @@ Vollständig in der Checkliste des Treatments — die härtesten Sperren:
 
 ---
 
+## 5b. Reihen-Geografie (fest)
+
+- **Haupthandlung: Skandinavien.** Der erzählerische Schwerpunkt und Elias'
+  Heimatraum liegen in Skandinavien (u. a. Göteborg, Oslo, Utvær/Küste, Malmö).
+  Die Cold-Open-Hafenoperation (Kap 1) spielt in **Göteborg**.
+- **Nebenstränge: europäische Metropolen.** Ausflüge außerhalb Skandinaviens
+  finden in europäischen Großstädten statt (z. B. Hamburg für den Holm-Fall).
+- Beim Setzen neuer Schauplätze diese Balance halten: der Kern bleibt
+  skandinavisch, das Ausland bleibt Nebenschauplatz.
+
+---
+
 ## 6. Kapitelkarte Band 1 „Nullpunkt" (14 Kapitel, Ziel je ~3.400 W, Summe ~47k)
 
 1. **Kaltes Wasser** — Cold Open: die Hafen-Operation (aus der Testszene, voll
